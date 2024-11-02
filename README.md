@@ -39,26 +39,26 @@
 ### 💫 𝗗𝘂𝗱𝗮 𝘀𝗼𝗯𝗿𝗲 𝗲𝗹 𝗯𝗼𝘁? 
 𝗖𝗼𝗻𝘁𝗮𝗰𝘁𝗮𝗺𝗲 ✨
 
-<a href="http://wa.me/573147616444" target="blank"><img src="https://img.shields.io/badge/Creador-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" /> 
+<a href="http://wa.me/50374349804" target="blank"><img src="https://img.shields.io/badge/Creador-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" /> 
 
 <a href="http://wa.me/573046570706?text=.estado" target="blank"><img src="https://img.shields.io/badge/Bot oficial-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 </a>
 
 ### ❇️ 𝙂𝙍𝙐𝙋𝙊𝙎 𝙊𝙁𝙄𝘾𝙄𝘼𝙇𝙀𝙎
 
-<a href="https://chat.whatsapp.com/HNDVUxHphPzG3cJHIwCaX5" target="blank"><img src="https://img.shields.io/badge/Grupo LoliBot ofc 1-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" /> 
-<a href="https://chat.whatsapp.com/H4hxytyGvucIF1k0UAR7es" target="blank"><img src="https://img.shields.io/badge/Grupo LoliBot ofc 2-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
-<a href="https://chat.whatsapp.com/IO5k0UOF7hOJHE1eH3Fcxh" target="blank"><img src="https://img.shields.io/badge/🐈 𝐆𝐚𝐭𝐚𝐁𝐨𝐭 & 𝐋𝐨𝐥𝐢𝐁𝐨𝐭 🥳-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
-<a href="https://chat.whatsapp.com/IstOAq2RnBx687WhQpOYK8" target="blank"><img src="https://img.shields.io/badge/𝐄𝐧𝐥𝐚𝐜𝐞 𝐋𝐨𝐥𝐢𝐁𝐨𝐭 -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
-<a href="https://chat.whatsapp.com/Jpshmvl9Ey4K30zKHoK20q" target="blank"><img src="https://img.shields.io/badge/💫 𝘾𝙤𝙢𝙪𝙣𝙞𝙙𝙖𝙙 𝙇𝙤𝙡𝙞𝘽𝙤𝙩 🥳-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+<a href="https://chat.whatsapp.com/I7WiWv6cuLJE6x3DiThgzx" target="blank"><img src="https://img.shields.io/badge/Grupo LoliBot ofc 1-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" /> 
+<a href="https://chat.whatsapp.com/I7WiWv6cuLJE6x3DiThgzx" target="blank"><img src="https://img.shields.io/badge/Grupo LoliBot ofc 2-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+<a href="https://chat.whatsapp.com/I7WiWv6cuLJE6x3DiThgzx" target="blank"><img src="https://img.shields.io/badge/🐈 𝐆𝐚𝐭𝐚𝐁𝐨𝐭 & 𝐋𝐨𝐥𝐢𝐁𝐨𝐭 🥳-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+<a href="" target="blank"><img src="https://img.shields.io/badge/𝐄𝐧𝐥𝐚𝐜𝐞 𝐋𝐨𝐥𝐢𝐁𝐨𝐭 -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+<a href="https://chat.whatsapp.com/I7WiWv6cuLJE6x3DiThgzx" target="blank"><img src="https://img.shields.io/badge/💫 𝘾𝙤𝙢𝙪𝙣𝙞𝙙𝙖𝙙 𝙇𝙤𝙡𝙞𝘽𝙤𝙩 🥳-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 </a>
 
-<a href="https://chat.whatsapp.com/FRkr7jJHSJA5OjVtE64dDs" target="blank"><img src="https://img.shields.io/badge/Grupo ayuda sobre el bot-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+<a href="" target="blank"><img src="https://img.shields.io/badge/Grupo ayuda sobre el bot-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 </a>
 
 [![Typing SVG](http://readme-typing-svg.herokuapp.com?font=Fira+Code&size=10&duration=3000&pause=1000&color=34F6F7&center=falso&vCenter=falso&width=435&lines=%C3%9Anete+y+Conoce+las+%C3%9Altimas+Novedades!!)](https://git.io/typing-svg)
 [![blog](https://img.shields.io/badge/Canal-actulizaciones-25D366?style=for-the-badge&logo=whatsapp&logoColor=white 
-)](https://whatsapp.com/channel/0029Va4QjH7DeON0ePwzjS1A)  <a href="https://whatsapp.com/channel/0029Va4QjH7DeON0ePwzjS1A"> <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/1/19/WhatsApp_logo-color-vertical.svg/1200px-WhatsApp_logo-color-vertical.svg.png" height="29px">
+)](https://chat.whatsapp.com/I7WiWv6cuLJE6x3DiThgzx)  <a href="https://chat.whatsapp.com/I7WiWv6cuLJE6x3DiThgzx"> <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/1/19/WhatsApp_logo-color-vertical.svg/1200px-WhatsApp_logo-color-vertical.svg.png" height="29px">
 </a>
 -----
 ### ☁️ Activar LoliBot-MD 24/7 activos en SkyPlus Host
@@ -70,9 +70,9 @@
 - **Dashboard:** [`Aquí`](https://dash.skyultraplus.com)
 - **Panel:** [`Aquí`](https://panel.skyultraplus.com)
 - **Estado de servicios:** [`Aquí`](https://estado.skyultraplus.com)
-- **Canal de WhatsApp:** [`Aquí`](https://whatsapp.com/channel/0029VakUvreFHWpyWUr4Jr0g)
-- **Comunidad:** [`Aquí`](https://chat.whatsapp.com/JPwcXvPEUwlEOyjI3BpYys)
-- **Contacto(s):** [`Gata Dios`](https://wa.me/message/B3KTM5XN2JMRD1) / [`Russell`](https://api.whatsapp.com/send/?phone=15167096032&text&type=phone_number&app_absent=0) / [`elrebelde21`](https://facebook.com/elrebelde21)
+- **Canal de WhatsApp:** [`Aquí`](https://chat.whatsapp.com/I7WiWv6cuLJE6x3DiThgzx)
+- **Comunidad:** [`Aquí`]()
+- **Contacto(s):** [`Gata Dios`](https://wa.me/messa/B3KTM5XN2JMRD1) / [`Russell`](https://chat.whatsapp.com/I7WiWv6cuLJE6x3DiThgzx) / [`elrebelde21`](https://facebook.com/elrebelde21)
 - **Discord:** [`aqui`](https://discord.gg/Ph4eWsZ8)
 
 - [x] **Configuración** <details><summary>**Ajustes del Servidor - LoliBot-MD**</summary><img src="https://telegra.ph/file/7ddd30dd7d77354fb01fe.jpg"></details>
